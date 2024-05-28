@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Dana! I am data analyst, researcher and educator.
-- 👀 I’m interested in Data Analysis.
+- 👀 I’m interested in Data Analytics, Technology, Psychology.
 - 🌱 I’m close to finish "Data Analyst" study program at Practicum by Yandex.
 - 💞️ I’m looking to collaborate on various projects to hone my skills.
 - 📫 email: muratbekdana@gmail.com
